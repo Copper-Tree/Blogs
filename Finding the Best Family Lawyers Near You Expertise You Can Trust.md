@@ -11,4 +11,5 @@ If you’re searching for the **best family lawyer near me**, connect with our d
 ---
 
 
-**Your family’s future deserves the right support — choose CopperTree Family Law, where expertise meets genuine care.**
+**Your family’s future deserves the right support choose CopperTree Family Law, where expertise meets genuine care.**
+
